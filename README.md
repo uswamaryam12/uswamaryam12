@@ -39,7 +39,7 @@ You can find more about these projects and others in my [LinkedIn](https://www.l
 
 Let's collaborate and explore the future together! You can connect with me on:
 
-- 📧 Email: [maryamuswa6112@gmail.com](mailto:maryamuswa6112@gmail.com)
+- 📧 Email: [research.uswa@gmail.com](mailto:research.uswa@gmail.com)
 - 💼 LinkedIn: [Uswa Mariam](https://www.linkedin.com/in/uswa-mariam)
 
 Feel free to reach out if you share similar interests or just want to have a stimulating conversation about AI and technology. I'm always eager to connect with fellow enthusiasts.
